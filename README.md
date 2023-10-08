@@ -7,7 +7,7 @@
 - tel: +49 151 728 34 338
 - telegram-name: @it_pvu
 - 
-Other socials in GIT profile.
+https://de.linkedin.com/in/vitalii-povierienov-90647b212
 --------------------------
 Feel free to contact me.
 
