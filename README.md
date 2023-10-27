@@ -6,8 +6,7 @@
 - 👀 How to reach me: 📫 email:  vpovierienov.dev@gmail.com
 - tel: +49 151 728 34 338
 - telegram-name: @it_pvu
-- 
-https://de.linkedin.com/in/vitalii-povierienov-90647b212
+                          https://de.linkedin.com/in/vitalii-povierienov-90647b212
 --------------------------
 Feel free to contact me.
 
